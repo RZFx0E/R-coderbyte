@@ -1,4 +1,5 @@
 # A lazy kid who dream big ¯_(ツ)_/¯
+
 🔭 I’m currently playing around with Android and Linux.
 
 🤔 I’m looking for help with everything since I'm dumb :p
